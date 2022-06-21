@@ -1,2 +1,1 @@
 メモ
-memomemo
